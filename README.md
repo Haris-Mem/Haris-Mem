@@ -1,4 +1,4 @@
-### Hi there 👋, Haris Memon
+### Hi there 👋, I'm Haris Memon
 #### Software Dev & Data Engineering
 ![Software Dev & Data Engineering](https://cdn.discordapp.com/attachments/563095077422104586/1017832469510230066/PXL_20220717_002750575.jpg)
 
